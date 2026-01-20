@@ -1,0 +1,1 @@
+# politica-privacidade-app-D-D-Jogador_gerador_de_fichas
